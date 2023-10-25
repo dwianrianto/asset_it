@@ -1,6 +1,7 @@
 IT KICUT
 
-https://scontent.fcgk3-4.fna.fbcdn.net/v/t39.30808-6/395843320_2538762262963696_4080126488321973918_n.jpg?stp=dst-jpg_p960x960&_nc_cat=104&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeHH4xJ5-SL0V9YAX2hsK66ilAS8neIig4GUBLyd4iKDgfhBwvE-xB0vD7SbRmNYehtz9Jn5iud61eitnUx9HWjl&_nc_ohc=TdxA5U9I6lUAX_N86v5&_nc_zt=23&_nc_ht=scontent.fcgk3-4.fna&oh=00_AfANIgMJJoK_XUTr5IgjkQ_wHRYaYc2RTboNubgjKX_Q_g&oe=653D0F60
+<img src="
+https://scontent.fcgk3-4.fna.fbcdn.net/v/t39.30808-6/395843320_2538762262963696_4080126488321973918_n.jpg?stp=dst-jpg_p960x960&_nc_cat=104&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeHH4xJ5-SL0V9YAX2hsK66ilAS8neIig4GUBLyd4iKDgfhBwvE-xB0vD7SbRmNYehtz9Jn5iud61eitnUx9HWjl&_nc_ohc=TdxA5U9I6lUAX_N86v5&_nc_zt=23&_nc_ht=scontent.fcgk3-4.fna&oh=00_AfANIgMJJoK_XUTr5IgjkQ_wHRYaYc2RTboNubgjKX_Q_g&oe=653D0F60" />
 
 
 
